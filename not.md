@@ -1,0 +1,1 @@
+Odevlerimi ve yazdıklarımı paylaşıyorum
